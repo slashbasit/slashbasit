@@ -5,6 +5,6 @@
 
 -👋 Hi, I’m @slashbasit
 - 👀 I’m interested in Hacking
-- 🌱 I’m currently learning Ethical Hacking
+- 🌱 I’m currently a student and a penetration tester 
 - 💞️ I’m looking to collaborate on hacking related projects
-- 📫 How to reach me (cant sadly)
+- 📫 How to reach me (insta : abdul_basit_abk_69 , gmail : abdulbasitpriv@gmail.com)
